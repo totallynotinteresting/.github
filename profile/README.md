@@ -1,5 +1,7 @@
 hi,
 
-i make "patches" for niche mac software
+i do things for the funny and for the free :)
 
-ok bye
+i don't have a website solely because i was too lazy to make one 
+
+ok, cya
